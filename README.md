@@ -1,5 +1,5 @@
 
-  # Welcome to **Devsanket's GitHub Profile!** 👋  
+  # Welcome to **Sanket's GitHub Profile!** 👋  
 
 
 ## 🌟 **About Me**  
